@@ -1,5 +1,5 @@
 
 # Thing that you read
 
-![](https://cdn.discordapp.com/attachments/827696651442323490/1534803645516873768/image.png?ex=6a7574c8&is=6a742348&hm=adcb8a1c0a805082b3fe40db2d73f0e04075de8b593a0aacdcfa4f7d30da7907&)
+![](https://cdn.discordapp.com/attachments/827696651442323490/1534804034475528202/image.png?ex=6a757525&is=6a7423a5&hm=8d17f25e73ed222f1bd5560b62e45366a6308f0dfe8eaa7404e772d4742ca207&)
 
